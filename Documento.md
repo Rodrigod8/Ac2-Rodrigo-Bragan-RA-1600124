@@ -37,6 +37,8 @@ acesse os link para conferir sites também de doações:
 
 ---
 
+
 # Fale Comigo
+ <rodrigo.braganca@aluno.faculdadeimpacta.com.br>
+ 
 @Rodrigod8
-# Ac2-Rodrigo-Bragan-RA-1600124
